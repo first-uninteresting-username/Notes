@@ -41,7 +41,7 @@ I don't know which is more retarded
 7 promised
 8 confessed
 
-1 Jack told us that after he had read headlines last night, his throat had felt dry, so he had decided to take a drink
+1 Jack told us that after he had read headlines the night before, his throat had felt dry, so he had decided to take a drink
 2 He pointed out there was a glass of water on his desk.
 3 He said he had been in hurry and had spilt the water.
 4 The producer warned him not to laugh.
