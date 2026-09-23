@@ -31,3 +31,9 @@ Ich opinie są zbliżone/różnią się
 Autor 1. twierdzi że ..., uzasadnia to przykładami ...
 Autor 2. myśli inaczej/podobnie, a uzasadnia to przez ...
 Obaj autorzy przyznają
+
+Przykładowe słowa i sformułowania:
+
+- Porusza problem, podjemuje zagadnienie, przedstawia, bada, analizuje
+- Rozważa, twierdzi, zastanawia się, roztrząsa, dochodzi do, dowodzi, omawia, pokazuje, wyjaśnia, podkreśla, eksponuje
+- Swoje rozważania ilustruje/uzasadnia przykładami, w dalszej części udowadnia, wskazuje na, podkreśla, podaje przykłads
