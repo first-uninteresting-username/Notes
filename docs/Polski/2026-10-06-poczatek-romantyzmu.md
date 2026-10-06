@@ -18,4 +18,6 @@ Schmat notatki syntetyzującej:
 - Określić temat obu tekstów "Tematem obu tekstów jest"
 - Stanowisko autora 1
 - Stanowisko autora 2
-- Zestawienie stanowisk
+- Zestawienie stanowisk (punkty wspólne i rozbierzne)
+
+Nie no, ale nie jest źle w mojej. No przynajmniej na 2
