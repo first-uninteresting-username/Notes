@@ -19,5 +19,3 @@ Schmat notatki syntetyzującej:
 - Stanowisko autora 1
 - Stanowisko autora 2
 - Zestawienie stanowisk (punkty wspólne i rozbierzne)
-
-Nie no, ale nie jest źle w mojej. No przynajmniej na 2
