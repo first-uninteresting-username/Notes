@@ -16,3 +16,8 @@ IIIRP:
 
 Leszek Bubel - "obrzezano im mózg" "pejsaty paplament" "podstępne jest żydowskie nasienie" "jestem naczelnym antysemitą RP"
 Stan Tymiński - random z kanady, przeszedł do drugiej tury wyborów w 1990, twierdził że ma teczki na polityków
+
+Do sprawdzianu strony 86-87 z podręcznika. Napiszcie do mnie to wyślę zdjęcie.
+Szczególnie wytłuszczone.
+Definicje do napisania.
+Kryteria klasyfikacyjne grup społecznych.
