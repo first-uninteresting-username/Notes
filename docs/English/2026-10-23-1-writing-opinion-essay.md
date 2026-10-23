@@ -1,5 +1,7 @@
 # An opinion essay
 
+200-250 words
+
 - Introduction
   General statement
   Your opinion
